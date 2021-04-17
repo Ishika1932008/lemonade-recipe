@@ -1,0 +1,1 @@
+sugar syrup,water,mint leaves,soda, lemon, black salt, ice cubes

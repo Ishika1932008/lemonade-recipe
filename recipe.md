@@ -1,0 +1,1 @@
+take and glass and put some water. Add sugar syrup and a bit of black salt. Add refreshing mint leaves and lemon syrup. Then add ice cubes to make it cold and refreshing. 
